@@ -25,7 +25,7 @@
 
 ## YouTube配布 | YouTube URL
 
-[【太鼓の達人 創作譜面】惡魔偶像進化論【全難易度同時再生】]()
+[【太鼓の達人 創作譜面】惡魔偶像進化論【全難易度同時再生】](https://youtu.be/ovgdAEu6jSk)
 
 ## Project Details
 
